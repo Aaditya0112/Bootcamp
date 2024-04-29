@@ -6,4 +6,6 @@ Main keypoints I liked the most about __Evening Sessions__ are :
 * get to know **notes-making** is important here too.
  ### Trying to use emojis here
  A big round of Applause for You all for this bootcamp: :clap: :clap: :ok_hand:
+
+ Thank You.
   
